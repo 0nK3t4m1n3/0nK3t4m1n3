@@ -8,10 +8,13 @@ The content on my accounts is delicate and created by me because I want to; I’
 All the Fers are sick.
 <img align="right" alt="GIF" height="160px" src="https://media.giphy.com/media/du3J3cXyzhj75IOgvA/giphy.gif" />
 
+<p 
+ <a href="https://github.com/" target="_blank"> 
+    <img alt="GitHub" src="https://img.shields.io/badge/GitHub-%23121011.svg?logo=github&logoColor=white"/>
+  
+[![Twitter Follow](https://img.shields.io/twitter/follow/latte_tiernaw?style=social)](https://twitter.com/latte_tiernaw)
 
 
-
-[![Spotify](https://spotify-github-profile.vercel.app/api/view?uid=315fx2l3w2yml6pun5bnvdlghgce&cover_image=true&theme=default&show_offline=false&background_color=121212)](https://open.spotify.com/user/315fx2l3w2yml6pun5bnvdlghgce)
 
 
 
