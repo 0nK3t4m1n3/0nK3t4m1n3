@@ -1,12 +1,10 @@
-<img src="https://media.discordapp.net/attachments/1436408577169559563/1436408668622159883/tumblr_12ad01c7f5a99c5f39adda8a866dcdb0_f514ee53_400.gif?ex=692b2ed1&is=6929dd51&hm=fa0e84fc420f0482a6ebb4fa2da5d685f421a15712f73a744e025a154441e17b&=" alt="GIF animado" width="400">
 
 
 
 🚫 virtual relationships
 
-The content on my accounts is delicate and created by me because I want to; I’m not seeking any help.
+Please ask me to take inspiration from my ponies YES. THIS INCLUDES MY COLOURING STYLE. through whispers or atabook! 
 
-All the Fers are sick.
 <img align="right" alt="GIF" height="160px" src="https://media.giphy.com/media/du3J3cXyzhj75IOgvA/giphy.gif" />
 
 <p 
