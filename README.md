@@ -1,15 +1,19 @@
 
+<img src="https://camo.githubusercontent.com/dcba50eb87df9680835a23824dc2fc51d7f43ab3fdd88fca5e582e1981762b45/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f64653839323435633737666562653337643232326363333438383231656234322f333935373061383330623834663134302d61642f73363430783936302f646239663937323839653832393663343462623435303564646334383130613732303661323738302e67696676" alt="Mi imagen" width="560"/>
 
-
-🚫 virtual relationships
 
 Please ask me to take inspiration from my ponies YES. THIS INCLUDES MY COLOURING STYLE. through whispers or atabook! 
 
-<img align="right" alt="GIF" height="160px" src="https://media.giphy.com/media/du3J3cXyzhj75IOgvA/giphy.gif" />
+w2i im always off tab. or sign ata bc there's a 40% chance i'm unable 2 respond
 
-<p 
- <a href="https://github.com/" target="_blank"> 
-  <img alt="GitHub" src="https://img.shields.io/badge/GitHub-%23121011.svg?logo=github&logoColor=white"/>
+<img src="https://media.discordapp.net/attachments/1421895263882317824/1444373107983777792/GvxOeevXgAA2SW6.jpg?ex=692c78c8&is=692b2748&hm=18a3ffc5e0e060850e5ce38d7c4033b12a7799e064b3e14162ca06641d4e26d4&=&format=webp&width=629&height=488" alt="Mi imagen" width="500"/>
+
+
+
+
+
+
+
   
 [![Twitter Follow](https://img.shields.io/twitter/follow/latte_tiernaw?style=social)](https://twitter.com/latte_tiernaw)
 
@@ -19,4 +23,3 @@ Please ask me to take inspiration from my ponies YES. THIS INCLUDES MY COLOURING
 
 
 
-<img src="https://media.discordapp.net/attachments/1436408577169559563/1436408668622159883/tumblr_12ad01c7f5a99c5f39adda8a866dcdb0_f514ee53_400.gif?ex=692b2ed1&is=6929dd51&hm=fa0e84fc420f0482a6ebb4fa2da5d685f421a15712f73a744e025a154441e17b&=" alt="GIF animado" width="400">
