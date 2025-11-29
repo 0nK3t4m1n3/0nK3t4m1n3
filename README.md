@@ -9,6 +9,9 @@ Please ask me to take inspiration from my ponies YES. THIS INCLUDES MY COLOURING
 
 w2i im always off tab. or sign ata bc there's a 40% chance i'm unable 2 respond
 
+ c + h freely unless with friends ⠀
+  
+[![Twitter Follow](https://img.shields.io/twitter/follow/latte_tiernaw?style=social)](https://twitter.com/latte_tiernaw)
 <p align="center">
   <img src="https://cdn.discordapp.com/emojis/1422003158355415064.webp?size=28&animated=true" alt="Mi imagen" width="30"/>
 </p>
@@ -20,9 +23,7 @@ w2i im always off tab. or sign ata bc there's a 40% chance i'm unable 2 respond
 
 
 
-　c + h freely unless with friends ⠀
-  
-[![Twitter Follow](https://img.shields.io/twitter/follow/latte_tiernaw?style=social)](https://twitter.com/latte_tiernaw)
+
 
 
 
