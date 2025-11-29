@@ -20,8 +20,7 @@ w2i im always off tab. or sign ata bc there's a 40% chance i'm unable 2 respond
 
 
 
-
-
+　c + h freely unless with friends ⠀
   
 [![Twitter Follow](https://img.shields.io/twitter/follow/latte_tiernaw?style=social)](https://twitter.com/latte_tiernaw)
 
