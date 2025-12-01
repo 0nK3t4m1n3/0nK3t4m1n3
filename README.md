@@ -6,11 +6,12 @@
 
 
 
-Please ask me to take inspiration from my ponies YES. THIS INCLUDES MY COLOURING STYLE. through whispers or atabook!!
+Please ask me to take inspiration from my ponies YES. THIS INCLUDES MY COLOURING STYLE. through whispers or atabook!!!
 
 w2i im always off tab. or sign ata bc there's a 40% chance i'm unable 2 respond
 
  c + h freely unless with friendss
+
 
 I’m not online all the time, but when I am, it bothers me when people cling to me just to ask things or start a conversation. It’s my choice if I don’t want to engage in anything with you.
  
@@ -25,7 +26,6 @@ I’m not looking for any kind of virtual relationship with anyone. I’m in a l
     <img src="https://img.shields.io/twitter/follow/latte_tiernaw?style=social" alt="Twitter Follow">
   </a>
 </p>
-
 
 
 
