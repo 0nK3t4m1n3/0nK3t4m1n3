@@ -6,7 +6,6 @@
 
     
 
-      
 
 Please ask me to take inspiration from my ponies YES. THIS INCLUDES MY COLOURING STYLE. through whispers or atabook!!!
 
@@ -19,7 +18,9 @@ I’m not looking for any kind of virtual relationship with anyone. I’m in a l
 
 
 **Don’t socialize with me if the community I’m part of makes you uncomfortable**
+    
 
+      
 
 <p align="center">
   <a href="https://twitter.com/latte_tiernaw">
@@ -30,7 +31,7 @@ I’m not looking for any kind of virtual relationship with anyone. I’m in a l
 
     
 
-      
+
 
 <img src="https://i.pinimg.com/736x/23/ab/f8/23abf846f842674ca83c0055a45454b2.jpg" alt="Imagen" width="701"/>
 
