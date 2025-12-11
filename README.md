@@ -43,11 +43,9 @@ Languages I speak: Spanish, Portuguese, and English
 
     
 
+</div>
 
-<p align="center">
-  <img src="https://i.pinimg.com/736x/cb/77/38/cb773855fabce95c98a565d7aa574cb7.jpg" alt="Mi imagen" width="601"/>
-</p>
-
+https://github.com/user-attachments/assets/74350f85-e784-4fc0-beda-9e221ea64b1a
 
 
 
