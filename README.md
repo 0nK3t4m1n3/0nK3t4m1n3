@@ -25,7 +25,7 @@ I’m not online all the time, but when I am, it bothers me when people cling to
 
 
  
-Languages I speak: Spanish, Portuguese, and English
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315fx2l3w2yml6pun5bnvdlghgce&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=315fx2l3w2yml6pun5bnvdlghgce&redirect=true)
 
 
 
