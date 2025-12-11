@@ -8,7 +8,7 @@
 </p>
 
 
-DNI menores -15 o mayores +25 dependiendo de la persona  record shetwt 10 D
+ALSO MINORS DNI record shetwt 10 D
 
 Please ask me to take inspiration from my ponies YES. THIS INCLUDES MY COLOURING STYLE. through whispers!
 
