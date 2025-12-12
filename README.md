@@ -8,8 +8,6 @@
 </p>
 
 
-hola
-
 
 ALSO MINORS DNI record shetwt 11 D
 
