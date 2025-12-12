@@ -8,12 +8,12 @@
 </p>
 
 
-ALSO MINORS DNI record shetwt 11 D
+ALSO MINORS DNI record shetwt 11 Dmn
 
 Please ask me to take inspiration from my ponies YES. THIS INCLUDES MY COLOURING STYLE. through whispers!
 
 
-**Don’t socialize with me if the community I’m part of makes you uncomfortable**
+**Don’t socialize with me if the community I’m part of makes you uncomfortable**mm
 
 
 
