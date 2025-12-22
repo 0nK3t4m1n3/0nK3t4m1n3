@@ -40,6 +40,6 @@ https://github.com/user-attachments/assets/9f18b073-692c-4d3c-b869-768317e0b7a6
 
 
 
-
+Sometimes, small imperfections are what make us love something even more. What does it matter if a rose is a little short or a little wide? It has more personality than all the others...
 
 
