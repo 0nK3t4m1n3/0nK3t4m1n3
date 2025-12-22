@@ -17,8 +17,8 @@ Sometimes, small imperfections are what make us love something even more. What d
 
 </div>
 
-https://github.com/user-attachments/assets/9f18b073-692c-4d3c-b869-768317e0b7a6
-
+https://github.com/user-attachments/assets/0a23f903-a63f-4a5d-a64a-e92252991141
+ 
 </div>
 
 
