@@ -8,7 +8,7 @@
 </p>
 
 
-
+....
 𝐀LSO MINORS DNI record shetwt 14Dias.
 
 𝐏lease ask me to take inspiration from my ponies YES. THIS INCLUDES MY COLOURING STYLE. through whispers!
