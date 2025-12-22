@@ -8,15 +8,7 @@
 </p>
 
 
-....
-𝐀LSO MINORS DNI record shetwt 14Dias.
-
-𝐏lease ask me to take inspiration from my ponies YES. THIS INCLUDES MY COLOURING STYLE. through whispers!
-
-
-**Don’t socialize with me if the community I’m part of makes you uncomfortable**
-
-
+Sometimes, small imperfections are what make us love something even more. What does it matter if a rose is a little short or a little wide? It has more personality than all the others..
 
 
 
@@ -37,9 +29,5 @@ https://github.com/user-attachments/assets/9f18b073-692c-4d3c-b869-768317e0b7a6
 </div>
 
 
-
-
-
-Sometimes, small imperfections are what make us love something even more. What does it matter if a rose is a little short or a little wide? It has more personality than all the others...
 
 
