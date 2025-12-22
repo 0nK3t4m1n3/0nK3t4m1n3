@@ -8,16 +8,9 @@
 </p>
 
 
-Sometimes, small imperfections are what make us love something even more. What does it matter if a rose is a little short or a little wide? It has more personality than all the others..
+Sometimes, small imperfections are what make us love something even more. What does it matter if a rose is a little short or a little wide? It has more personality than all the others.
 
 
-
-
-<div align="center">
- 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315fx2l3w2yml6pun5bnvdlghgce&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=315fx2l3w2yml6pun5bnvdlghgce&redirect=true)
-
-</div>
 
 
  <div align="center">
