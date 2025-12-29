@@ -12,7 +12,7 @@ Sometimes, small imperfections are what make us love something even more. What d
 
       <img src="https://cdn.discordapp.com/emojis/1437263799114797066.webp?size=44" alt="Emoji" width="44" height="44">
 
-https://cdn.discordapp.com/attachments/1421895263882317824/1454263822180421654/2_sin_titulo_20251226003734.png?ex=6953bffa&is=69526e7a&hm=da8949de45f55b36d7de7131bfc1187501d4550aab4fc13ec70c72f260a36bc1&
+
 
 
 
