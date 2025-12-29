@@ -13,14 +13,6 @@ Sometimes, small imperfections are what make us love something even more. What d
 
 
 
- <div align="center">
-
-</div>
-
-https://github.com/user-attachments/assets/0a23f903-a63f-4a5d-a64a-e92252991141
- 
-</div>
-
 
 
 
