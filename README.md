@@ -1,4 +1,3 @@
-lo
 
 
 <p align="center">
