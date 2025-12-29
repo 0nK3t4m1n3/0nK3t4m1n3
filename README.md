@@ -1,8 +1,8 @@
 
 
 <p align="center">
-  <a href="https://twitter.com/latte_tiernaw">
-    <img src="https://img.shields.io/twitter/follow/latte_tiernaw?style=social" alt="Twitter Follow">
+  <a href="https://twitter.com/meo0w_x">
+    <img src="https://img.shields.io/twitter/follow/meo0w_x?style=social" alt="Twitter Follow">
   </a>
 </p>
 
