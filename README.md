@@ -10,7 +10,7 @@
 
 Sometimes, small imperfections are what make us love something even more. What does it matter if a rose is a little short or a little wide? It has more personality than all the others.
 
-      <img src="https://cdn.discordapp.com/emojis/1437263799114797066.webp?size=44" alt="Emoji" width="44" height="44">
+    <img src="https://cdn.discordapp.com/emojis/1437263799114797066.webp?size=44" alt="Emoji" width="44" height="44">
 
 
 
